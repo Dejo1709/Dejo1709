@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dejo1709
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...Pentesting, Btc hacking, Tracking, SS7 Protocols
 - 🌱 I’m currently learning ...Cyber Security
 - 💞️ I’m looking to collaborate on ...Pentesting, Btc hacking, Tracking, SS7 Protocols,etc
 - 📫 How to reach me ... Whatsapp +2349016792396
